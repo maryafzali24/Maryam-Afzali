@@ -24,4 +24,4 @@
 
 ### Let's Connect
 
-📱 LinkedIn: https://www.linkedin.com/in/maryam-afzal1018/
+📱 LinkedIn: https://www.linkedin.com/in/maryamafzali24/
